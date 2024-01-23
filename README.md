@@ -1,1 +1,3 @@
 # Vatsal_Vashisth_Technologies_Submission
+
+My name is Vatsal Parikh. I'm from Bhavnagar, Gujarat. I am currently pursuing a dual degree in Btech Computer Engineering and MBA with a major in Finance and a minor in Marketing. I completed my SSC with CBSE and my HSC with the Gujarat State Educational Board. I enjoy playing cricket, singing music, and video editing. I completed my Technical Internship with AppleTech Pvt. Ltd., Vadodara, where I worked on a Web Development Project for a Medical Practice Website. During B-tech, I was a member of a College Committee and was on the Social Media Marketing team, where I gained experience creating social media content and improved my video editing skills.
